@@ -1,2 +1,0 @@
-# ascension
-Catholic Primary School
